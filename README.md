@@ -1,1 +1,2 @@
-MAnutd na bastard
+this only time i can write here
+
